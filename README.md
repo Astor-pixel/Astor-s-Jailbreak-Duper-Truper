@@ -39,7 +39,9 @@ Credits:
 
 Developer / Astor
 
-Seller / Istxrzz
+Seller 2/ Hidden
+
+Seller / Astor
 
 Idea / Cosmic
 
